@@ -1,2 +1,0 @@
-# absensionline
-ABSENSI ONLINE - FOTO SELFIE &amp; AUTO DETECT LOKASI
